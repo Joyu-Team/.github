@@ -26,8 +26,6 @@ We offer a wide range of services to meet the unique needs of our clients, inclu
 
 If you're ready to embark on a journey of joy and success with the Joyu Team, we invite you to reach out to us:
 
-- **Website:** [www.joyuteam.com](http://www.joyuteam.com)
-- **Email:** contact@joyuteam.com
-- **Phone:** +1 (123) 456-7890
+- **Email:** congtrieu.ng06@gmail.com
 
 Join us in spreading joy and making a positive impact. We look forward to working with you!
